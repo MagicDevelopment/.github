@@ -1,3 +1,3 @@
 ## Wassup 👋
 
-Official Discord: https://dsc.gg/liteclubdevelopment
+Official Discord: https://dsc.gg/magicdevelopment
