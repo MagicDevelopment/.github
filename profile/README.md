@@ -1,3 +1,3 @@
 ## Wassup 👋
 
-Official Discord: https://dsc.gg/magicdevelopment
+Official Discord: https://dsc.gg/magicservices
